@@ -1,4 +1,4 @@
-# _Introducing Patrick Hopkins_
+# Introducing Patrick Hopkins
 
 #### By _**Patrick Hopkins**_
 
